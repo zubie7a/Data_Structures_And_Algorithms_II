@@ -1,5 +1,5 @@
 ##Santiago Zubieta
-####EAFIT University, 2012-2 
+####EAFIT University, 2012-1
 
 '*I'm freezing and losing my way, I don't need another map of your head*'  
 -Muse, Map of Your Head
